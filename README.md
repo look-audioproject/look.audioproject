@@ -14,5 +14,3 @@ Materials used:
 
 •	2 X  headphones bluetooth
 •	2 X  bluetooth transmitters. 
-
-
